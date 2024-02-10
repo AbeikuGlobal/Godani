@@ -1,0 +1,2 @@
+# Godani
+Global
